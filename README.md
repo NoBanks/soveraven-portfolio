@@ -18,15 +18,15 @@ Three short deck videos with original NoBanks music.
 
 **Agentic protocol, top-line:**
 
-<!-- DROP-VIDEO-1 -->
+https://github.com/user-attachments/assets/2be7c1f1-04ca-4b73-82bc-7fbcc9f5ce1b
 
 **Heritage assets as license keys:**
 
-<!-- DROP-VIDEO-2 -->
+https://github.com/user-attachments/assets/6b5c0fa9-8c44-4fb6-b541-f5c8d687b7fe
 
 **The full protocol:**
 
-<!-- DROP-VIDEO-3 -->
+https://github.com/user-attachments/assets/f67d8312-1372-4c19-b0df-5ca5ca245aa2
 
 ---
 
